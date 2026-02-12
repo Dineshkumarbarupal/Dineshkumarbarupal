@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 you can reach me by using my contact number = 6377781395
 - 😄 Pronouns: ...
-- i am still finding a good business idea. 
+- i am still finding problem for business. 
 
 
 <!---
